@@ -62,7 +62,7 @@ To become a skilled Data Analyst, gain practical industry experience, and contri
 ## 🤝 Connect With Me
 
 - 💻 **GitHub:** [Avanthi Yamalapalli](https://github.com/avanthiyamalapalli)
-- 💼 **LinkedIn:** [Connect with me](https://www.linkedin.com/in/avanthiyamalapalli)
+- 💼 **LinkedIn:** [Connect with me](www.linkedin.com/in/avanthi-yamalapalli-b0150b378)
 
 ---
 
